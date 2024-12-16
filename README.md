@@ -1,1 +1,1 @@
-# new-rep
+# Type hi and u will get blessed
